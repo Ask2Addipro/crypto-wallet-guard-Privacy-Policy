@@ -1,0 +1,1 @@
+# crypto-wallet-guard-Privacy-Policy
